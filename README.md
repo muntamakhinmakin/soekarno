@@ -1,0 +1,2 @@
+# soekarno
+cerita soekarno
